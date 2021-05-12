@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on streams, blogging and more (just ask, I don't bite unless you're tasty).
 - 📫 How to reach me: jellypuffplays@gmail.com
 
-And last, but not least, if you want to treat me to a little:  
+And last, but not least, if you want to treat me a little:  
 
 [![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/N4N315JVJ)
 
